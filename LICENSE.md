@@ -1,4 +1,4 @@
-
+Experience bridger western like never before with bridger western Script hidden, the #1 Script. Includes undetectable and infinite resources for
 
 
 
